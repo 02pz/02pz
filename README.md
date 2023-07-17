@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @02pz
+- 👀 I’m interested in random  coding stuff
+- 🌱 I’m currently learning python
+- 📫 How to reach me discurd: brndons
